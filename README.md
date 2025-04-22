@@ -1,3 +1,0 @@
-# tigertimoxaRR
-
-timoxa
